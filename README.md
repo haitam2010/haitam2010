@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @haitam2010
 - 👀 I’m interested in Design for logo and nft
-- 🌱 I’m currently learning Le design
-- 💞️ I’m looking to collaborate on  un projet nft
+- 🌱 I’m currently learning The design
+- 💞️ I’m looking to collaborate on a project Nft
 - 📫 How to reach me Mon email: zariryh@gmail.com
 
 <!---
